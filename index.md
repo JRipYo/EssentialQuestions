@@ -1,1 +1,1 @@
-### Kokios charakterio savybė patinka kitame žmoguje?
+### Kokios charakterio savybės patinka kitame žmoguje?

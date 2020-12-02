@@ -1,4 +1,4 @@
 ## KLausimas/tema:
-Ar ateityje norėtum vaikų/šeimos?
+Kas kitame žmoguje yra patrauklu? (išvaizda: kūno formos, plaukų spalva, kūno dalys...)
 
-![1-Oq92ZIGTAVHPVtqq_LpGjw](https://user-images.githubusercontent.com/75223984/100808148-48dc2080-343c-11eb-9e1a-20bb886cc706.jpeg)
+

@@ -1,4 +1,2 @@
 ## KLausimas/tema:
-Kas kitame žmoguje yra patrauklu? (išvaizda: kūno formos, plaukų spalva, kūno dalys...)
-
-![images](https://user-images.githubusercontent.com/75223984/100937804-450fd300-34fc-11eb-8556-66ee7c15e992.jpg)
+Ar norėtum atvirų santykių? Ką apie juos manai? (atviri santykiai - santykiai kai neprisiriši prie vieno žmogaus, arba prisiriši prie kelių. Atviruose santykiuose dažnai pasižymi galimybė turėti lytinių santykių ne tik su savo partneriu, ar į aktą pasikviesti daugiau žmonių... (:P čia jums, kad poto neprisigalvotumėt, kad atviri santykiai tai santykiai kuriose gali atvirai bendraut su savo partneriu XDDD)).

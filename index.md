@@ -1,4 +1,4 @@
 ## Klausimas/tema:
-Ar patinka "dirty talk"?
+Kas tave sujaudina/užveda?
 
-![images](https://user-images.githubusercontent.com/75223984/101411678-102fc180-38ea-11eb-853c-df0e01267ff2.jpg)
+![Sweet-Sweet-Kink-A-Collection-of-BDSM-Stories-Still-1](https://user-images.githubusercontent.com/75223984/101546380-5dc33180-39b1-11eb-99eb-72c7bbc53e52.png)

@@ -1,2 +1,2 @@
 ## Klausimas/tema:
-https://www.youtube.com/watch?v=Wc5IbN4xw70
+Ar turi kokių nors sexy rūbų? Kokia kito apranga užveda? Kokių sexy rūbų norėtum turėti? Ar norėtum, kad turėtų kitas... 

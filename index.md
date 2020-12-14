@@ -8,4 +8,3 @@ Ar esi turėjęs/turėjus sexą telefonu? Ar esi sextinęs/sextinus? Ar norėtum
 ![123756884_363023864762711_6028145124374114191_n](https://user-images.githubusercontent.com/75223984/102140468-ec2f2b80-3e67-11eb-854d-e1e5b8f527c8.gif)
 
 ![123756884_363023864762711_6028145124374114191_n](https://user-images.githubusercontent.com/75223984/102140472-edf8ef00-3e67-11eb-9727-8d932ad164cc.gif)
-

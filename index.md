@@ -1,6 +1,6 @@
 ## Klausimas/tema:
-Kokių kinks turi? (Skausmas, kandžiojimas, smaugimas, BDSM, daugiau, jei nežinot, pasigooglinkit)
+Ar esi masturbavęsis in a public place? Ar išdrįstum pasimylėti in a public place?
 
-![bdsm](https://user-images.githubusercontent.com/75223984/102418622-c5f3c200-4006-11eb-82f8-0d8f2bed5f12.jpg)
+https://www.youtube.com/watch?v=EGOz9f78IjI
 
-![bdsm-straipsnis-1024x680](https://user-images.githubusercontent.com/75223984/102418643-d3a94780-4006-11eb-8d5b-3a07fa2d2dea.jpeg)
+![couples-kissing-hugging-public-spaces-black-white-photography-mikael-theimer-1](https://user-images.githubusercontent.com/75223984/102547413-dfa60f80-40c1-11eb-87d6-fe41a561b9da.jpg)
